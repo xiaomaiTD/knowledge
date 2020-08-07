@@ -15,7 +15,7 @@
 
 目录可以搜到的资源，有偿分享！支持试听试看，非诚勿扰！
 
-学习资料库永久会员社群目录：[学习资料库永久会员社群目录](http://note.youdao.com/s/Ej0ZlPnw)
+学习资料库永久会员社群目录：[学习资料库永久会员社群目录](https://shimo.im/docs/W3JTgGJyCg3hYgDc/)
 
 另外，目录中平台资源支持单个出售：69.9元/个。购买请参考[操作流程](https://shimo.im/docs/9UBe8LqvkxwMAwSq/read)
 
@@ -50,7 +50,7 @@
 
 ## 资源五：汇智学院资源 388元/永久 （原价520，涵盖资源一全部、资源三部分、资源四全部）
 
-详细介绍参考：
+详细介绍参考：[汇智学院官网，汇智学院官方代理招募](https://shimo.im/docs/hrG8QYQHPtTCjJYR/read)
 
 ![内容](./img/tc04.png)
 

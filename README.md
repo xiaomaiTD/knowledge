@@ -15,7 +15,7 @@
 
 目录可以搜到的资源，有偿分享！支持试听试看，非诚勿扰！
 
-学习资料库永久会员社群目录：[学习资料库永久会员社群目录](https://shimo.im/docs/W3JTgGJyCg3hYgDc/)
+学习资料库永久会员社群目录：[学习资料库永久会员社群目录](https://note.youdao.com/ynoteshare1/index.html?id=a01f8f5fea136c7afe61708c2e0638a6&type=note)
 
 另外，目录中平台资源支持单个出售：69.9元/个。购买请参考[操作流程](https://shimo.im/docs/9UBe8LqvkxwMAwSq/read)
 
